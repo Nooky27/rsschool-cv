@@ -1,1 +1,0 @@
-https://Nooky27.io/rsschool-cv/cv
