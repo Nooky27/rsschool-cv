@@ -1,1 +1,1 @@
-https://github.com/Nooky27/rsschool-cv/tree/rsschool-cv-html
+https://nooky27.github.io/rsschool-cv/
